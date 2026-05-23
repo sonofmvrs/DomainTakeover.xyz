@@ -1,4 +1,4 @@
-
+This Domain is currently being taken over by Latveria's Supreme Overlord... perfection is absolute.
 <!DOCTYPE html>
 <html lang="en">
 <head>
